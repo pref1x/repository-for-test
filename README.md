@@ -1,1 +1,1 @@
-Keep grind king!
+git is awesome!
